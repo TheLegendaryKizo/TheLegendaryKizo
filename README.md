@@ -1,4 +1,4 @@
-Yo dudes, I be the @TheLegendaryKizo, workin' towards a goal of extraordinary heights! While I do spend most my time playin' games, I find my self in loads of entertainment while programmin'-
+Yo dudes, I be TheLegendaryKizo, workin' towards a goal of extraordinary heights! While I do spend most my time playin' games, I find my self in loads of entertainment while programmin'-
 And speakin' of programming, I know my way around most mainstream languages, as well as more niche tools like Google Scripts.
 Oh, and feel free to use whatever pronouns you feel most comfortable referring to me as, I got no preference.
 
